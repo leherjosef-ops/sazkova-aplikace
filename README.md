@@ -1,0 +1,1 @@
+# sazkova-aplikace
